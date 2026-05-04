@@ -49,7 +49,7 @@
 ---
 
 ## 📫 Contact
-- 📧 Email: your-email@example.com  
+- 📧 Email: aneetabijuj@gmail.com
 
 ---
 
